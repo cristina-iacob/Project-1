@@ -1,4 +1,3 @@
-![enter image description here](https://lh3.googleusercontent.com/xBFbqhrVnFXy4yBkIN8M4nk1gumqpYN7MekZMBXDbRzpeeLwZHYQTSiKP5DecyDhmNx83jy1Sbm_)
 # Wild Fires and the causes that start them
 
 ## Background
